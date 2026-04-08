@@ -3,7 +3,7 @@ Ian Merlini 10402831
 Pedro Eseperança 10403152
 Luan Ortiz 10403101
 
-Link video 1 (questão 1 e 2): 
+Link video 1 (questão 1 e 2): https://youtu.be/pmi5RhFrvNE
 
 
 Link video 2 (questão 3):  https://youtu.be/MsBvxaJmy8w
